@@ -21,4 +21,4 @@ If that were to change, I'd probably update this ReadMe... if i remember.
 
 End of captains log.
 
-fvane out (salute)
+fvane out :v: 
